@@ -10,4 +10,4 @@ PDF Fusion Plus adalah plugin inovatif yang memberdayakan Anda untuk menggabungk
 - Dukungan Pelanggan: Tim dukungan pelanggan kami siap membantu Anda dengan pertanyaan atau masalah apa pun.
 
 ### Berlangganan
-- Kontak kami: https://wa.me/6285173467417
+- Kontak kami: https://wa.me/6285174111336
